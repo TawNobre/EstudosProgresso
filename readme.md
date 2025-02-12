@@ -1,0 +1,1 @@
+Olá! Criei esse repostório para me ajudar a acompanhar meu progresso na área de DEV e me inspirar a continuar. Se você quiser conhecer um pouco do caminho que estou fazendo, sinta-se à vontade para acompanhar <3
